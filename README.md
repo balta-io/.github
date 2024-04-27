@@ -1,0 +1,1 @@
+balta.io é uma ferramenta completa para auxiliar você em seu caminho para se tornar um desenvolvedor de respeito. Com mais de 50 cursos direcionados, oferecemos um conteúdo alinhado ao mercado para o caminho do sucesso!
